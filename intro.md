@@ -8,6 +8,6 @@ The problem is that this “universal” baseline is parochial.
 
 It belongs to certain nervous systems, not all — and yet it has been exported as law.
 
-This universalization quietly reinforces nervous system hierarchies, consistently marginalizing what I refer to as *high co-regulation nervous systems*: systems that are relationally oriented by design, that register safety, clarity, and regulation through attunement rather than isolation.
+This universalization quietly reinforces nervous system hierarchies, consistently marginalizing what I refer to as **high co-regulation nervous systems**: systems that are relationally oriented by design, that register safety, clarity, and regulation through attunement rather than isolation.
 
 Much of what follows resists conventional categorization. Not because it lacks rigor, but because its primary expression may be relational transmission, not publication.

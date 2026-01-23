@@ -11,4 +11,4 @@
 
 4. Can tolerate ambiguous or complex relational cues without needing everything to be spelled out or simplified.
 
-For a HCRNS folks, being around relationally intelligent people means your nervous system can relax, your body feels safe, and your emotional processing is supported. Without it, even minor interactions feel exhausting, confusing, or invalidating.
+For HCRNS folks, being around relationally intelligent people means your nervous system can relax, your body feels safe, and your emotional processing is supported. Without it, even minor interactions feel exhausting, confusing, or invalidating.

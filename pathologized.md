@@ -1,0 +1,1 @@
+High co-regulation nervous systems are often misdiagnosed as underdeveloped or dependent because most psychological and cultural frameworks assume autonomy as the baseline of health. These systems do not lack skills; they require environments where mutual regulation is possible without extraction.

@@ -2,3 +2,4 @@
 - When Fe isn’t busy keeping everything running, it starts seeing how everything runs.
 - Being deeply human in a dehumanizing system requires active refusal, not just self-knowledge.
 - FJ differentiation requires a moment where Fe loses the ability to keep everyone safe at once.
+- Fe doesn’t reorganize through instruction. It reorganizes through contrast + resonance. When the body finally feels the difference between flow and management, mutuality and labor, assessment and evaluation — it can’t un-feel it. Ti then comes in after to make language, not before to impose it.
